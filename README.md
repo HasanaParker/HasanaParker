@@ -1,5 +1,5 @@
 ### Hi👋, I'm Hasana Parker
-## A Computer Science Student @ Pomona College
+## A Computer Science Student @ Pomona College☀️
 
 Here are some ideas to get you started:
 
